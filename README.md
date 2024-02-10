@@ -6,7 +6,7 @@ Ask the manager for the up-to-date version
 -------------
 ![alt-текст](https://pbs.twimg.com/media/F2TUOn0XsAAG4o3.jpg)
 
-## [⚡️Eradika(PHOTO OF CONTRACT)](https://mega.nz/file/Log1VCab#zInl2Jl5jWd66mwUi0oGbugIzhFNzt9K9IWLeyk2t5w)
+## [⚡️Eradika(PHOTO OF CONTRACT)]()
 # Access the Advertising documents:
 ## [⚡️Eradika/PriceList](https://drive.google.com/file/d/1QCebG52jP6Tb1uud3lss2FD7bssXDnzE/view?usp=sharing)
 ## [⚡️Eradika/Video Requirements Information](https://drive.google.com/file/d/1_dbdi1_bBbpItXfT45ACYbedPEAbd0fa/view?usp=sharing)
