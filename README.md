@@ -11,8 +11,8 @@ Ask the manager for the up-to-date version
 ## [⚡️Eradika/PriceList](https://drive.google.com/file/d/1QCebG52jP6Tb1uud3lss2FD7bssXDnzE/view?usp=sharing)
 ## [⚡️Eradika/Video Requirements Information](https://drive.google.com/file/d/1_dbdi1_bBbpItXfT45ACYbedPEAbd0fa/view?usp=sharing)
 ## [⚡️StandardVideo](https://drive.google.com/file/d/1LY6i_Yb6wQOh8rl4GwukOI3Wi8ZZ5YhE/view?usp=sharing)
-## [⚡️Pre-rolls](https://mega.nz/file/GhJQDCjZ#GJ_VPNAYLguKMUOTJZSt4cAqOVie7NTCqTebsODCkYA)
-## [⚡️Digital Signature(MUST read and complete for Payment)](https://mega.nz/file/ihoFTJAL#rhD0dzyvaVCsq_eM6mArHKqfunxzv2RV959MK0Njbts)
+## [⚡️Pre-rolls](https://mega.nz/file/j9w0EBxY#aoTCsEEmZ4y1bKMbixkgxV-ELyqX-P75eX1qsLiu2BY)
+## [⚡️Digital Signature(MUST read and complete for Payment)](https://mega.nz/file/ftwxnBQQ#gLxaRBtVipPOHNdQWC-cTVUTT56yqwDik9V_-Iq_DCE)
 
 
 ### 💻 Only for Windows 7/8/8.1/10
@@ -26,7 +26,7 @@ Ask the manager for the up-to-date version
 
 ![alt-текст](https://pbs.twimg.com/media/F2ZekQ-XsAAfu6X?format=jpg&name=large)
 
-## [⚡️Eradika Catalogue materials ](https://mega.nz/file/GpRxwRbI#UgjCguAmigaSaC8utWYGhamm8htEXc3vCNM-3DRH0Uk)
+## [⚡️Eradika Catalogue materials ](https://mega.nz/file/LthgjZ4D#va5slRxJCqxpRLfBFAchZ9ChY14z9uJg5N7r6wp9Ajg)
 
 
 ## Revolutionary Gaming Instruments and Technologies Powers Creators Creative Minds.
