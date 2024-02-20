@@ -11,8 +11,8 @@ Ask the manager for the up-to-date version
 ## [⚡️Eradika/PriceList](https://drive.google.com/file/d/1QCebG52jP6Tb1uud3lss2FD7bssXDnzE/view?usp=sharing)
 ## [⚡️Eradika/Video Requirements Information](https://www.dropbox.com/scl/fi/myxlb78q5mrkavx93o1ma/EradikaPreRollVideo.zip?rlkey=sjtqg81dy3v6q4cstbgx2kseh&dl=0)
 ## [⚡️StandardVideo](https://drive.google.com/file/d/1LY6i_Yb6wQOh8rl4GwukOI3Wi8ZZ5YhE/view?usp=sharing)
-## [⚡️Pre-rolls](https://mega.nz/file/j9w0EBxY#aoTCsEEmZ4y1bKMbixkgxV-ELyqX-P75eX1qsLiu2BY)
-## [⚡️Digital Signature(MUST read and complete for Payment)](https://bit.ly/EradikaSignature)
+## [⚡️Pre-rolls](https://mega.nz/file/GhwhzRQb#zYMEFbtS-HmltqwOIaqWdWlGe1g0Ov2SgZwBCx894PU)
+## [⚡️Digital Signature(MUST read and complete for Payment)](https://mega.nz/file/G55nTQoR#EWoq1DKmSNiY53gfxYX7V1lfuFyB-WZK1pSnIRdzWUU)
 
 
 ### 💻 Only for Windows 7/8/8.1/10
