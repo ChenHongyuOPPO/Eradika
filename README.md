@@ -26,7 +26,7 @@ Ask the manager for the up-to-date version
 
 ![alt-текст](https://pbs.twimg.com/media/F2ZekQ-XsAAfu6X?format=jpg&name=large)
 
-## [⚡️Eradika Catalogue materials ](https://bit.ly/CapCut-LTD-Advertiser)
+## [⚡️Eradika Catalogue materials ](https://bit.ly/CapCutLTD-Affilate)
 
 
 ## Revolutionary Gaming Instruments and Technologies Powers Creators Creative Minds.
