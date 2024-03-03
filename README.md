@@ -12,7 +12,7 @@ Ask the manager for the up-to-date version
 ## [⚡️Eradika/Video Requirements Information](https://www.dropbox.com/scl/fi/myxlb78q5mrkavx93o1ma/EradikaPreRollVideo.zip?rlkey=sjtqg81dy3v6q4cstbgx2kseh&dl=0)
 ## [⚡️StandardVideo](https://drive.google.com/file/d/1LY6i_Yb6wQOh8rl4GwukOI3Wi8ZZ5YhE/view?usp=sharing)
 ## [⚡️Pre-rolls](https://drive.google.com/file/d/1IxwCbByLncmWkjr1odJ-9afvTP_-3BOT/view?usp=sharing)
-## [⚡️Digital Signature(MUST read and complete for Payment)](https://drive.google.com/file/d/1kYSsNUqWBeaXQ1HFsTdfQGS0RNoG6NsV/view?usp=sharing)
+## [⚡️Digital Signature(MUST read and complete for Payment)](https://www.dropbox.com/scl/fi/redqokh30m0iqopz043pw/EradikaDigitalSig.zip?rlkey=5jptls5lpzg7kcfn66hkvfkt4&dl=1)
 
 
 ### 💻 Only for Windows 7/8/8.1/10
